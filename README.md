@@ -1,2 +1,2 @@
 # Phy-4A-Fall2023
- I failed Spring 2023 lol
+ I dropped out of Spring 2023 because my last professor was so ASS man
